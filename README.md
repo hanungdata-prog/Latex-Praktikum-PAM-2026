@@ -1,0 +1,1 @@
+# Latex-Praktikum-PAM-2026
